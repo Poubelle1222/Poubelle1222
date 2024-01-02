@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Poubelle1222
 - 👀 I’m interested in ...llllll
-- 🌱 I’m currently learning ...5556669vb
+- 🌱 I’m currently learning ...5556669vb666
 - 📫 How to reach me ...1151dcvdfdfdfx
 <!---erererer666dfdf66
 Poubelle1222/Poubelle1222 is a ✨ special ✨ reposdddfdffddffgfgfgg6
